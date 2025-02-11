@@ -1,8 +1,14 @@
 ---
-title: "babys-first-blog"
+title: "love note 1"
 date: 2025-02-11
 ---
 
-this can be edited later so why would i edit it now.
+my dearest tiffanie,
 
-edit 1: my head hurts so bad my god why does it hurt so bad nothing is helping i cant move without so much pain please god forgive me for all my sins 
+i love you so much. i created this blog just as a centralized location to keep all my love notes for you. 
+
+i am going to try to upload some older notes to see if i can get them to order chronologically, but i am not confident i can do that. at least not yet. 
+
+i love you always,
+
+armando
