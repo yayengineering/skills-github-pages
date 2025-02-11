@@ -1,5 +1,5 @@
 ---
-title: love notes for tiffanie
+title: love notes for tiffanie ♡
 ---
 
 if you are not the most amazing, beautiful, compassionate, delightful, empathetic, flawless, glamorous, hopeful,
