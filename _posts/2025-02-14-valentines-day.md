@@ -13,7 +13,7 @@ using this one day to celebrate my love for you is simply not enough. there are 
 
 i love you, tiffanie
 
-i love the way when you smile your eyes light up and you can see your pearly whites from space. i love how soft you are. i love how stylish you are. i love how passionate you are. i love how when you wake up you look like the definition of sleepy & they use your picture in the dictionary and the little noises you use to communicate. i love your cricket feet. i love how you decorate. i love how excited you get about arts and crafts. i love that you make me excited about the things you are excited about. i love the way you think. 
+i love the way when you smile your eyes light up and you can see your pearly whites from space. i love how soft you are. i love how stylish you are. i love how passionate you are. i love how when you wake up you look like the definition of sleepy & they use your picture in the dictionary and the little noises you use to communicate. i love your cricket feet. i love how you decorate. i love how excited you get about arts and crafts. i love that you make me excited about the things you are excited about. i love the way you think. i love how you ask for back scratches. i love the way you look at me when you want a forehead kiss. i love the way your hands fit in mine.
 
 i love you, tiffanie
 
